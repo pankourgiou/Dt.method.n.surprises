@@ -1,0 +1,3 @@
+//Dt.method.n.surprises
+//https://www.youtube.com/watch?v=49h2BivkQ0s&t=175s Mostly this band is so good because they have method then they can break their matterials and reshape them to something new.
+//And a small surprise U.K. band t-shirt...and of course focus! https://en.wikipedia.org/wiki/U.K._(band) ...
