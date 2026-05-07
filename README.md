@@ -1,3 +1,4 @@
 //Dt.method.n.surprises
 //https://www.youtube.com/watch?v=49h2BivkQ0s&t=175s Mostly this band is so good because they have method then they can break their matterials and reshape them to something new.
 //And a small surprise U.K. band t-shirt...and of course focus! https://en.wikipedia.org/wiki/U.K._(band) ...
+//small example of dt is Jordan Rudess and Morphwiz app co-operation...if you can turn of and on the light you can play piano...but not like Rudess...they could do a Kraftwerk style album yet they have chosen difficult //ideas there...they could use dj they want..John Petrucci is human(and kinda superhuman) it's disrespectful to judge him hard(or at all)...guitars have certain capabilities...Yo-G3 guys-->He can convince you you can't //make it(and trully you can't make it) because he plays a bit and the sun explodes you know...I'll remind you the Kobe earthquake back then...his skill are phenomenal-->amazing!! and now he is not kidding..
